@@ -1,5 +1,5 @@
 # Protokoly Gypce
-Nechce se ti psát protokol? Nebo už ho máš napsaný a rád by jsi ho sdílel se zbytkem školy? Zde je místo pro tebe
+Nechce se ti psát protokol? Nebo už ho máš napsaný a rád by jsi ho sdílel se zbytkem školy? Zde je místo pro tebe  
 Jo a asi o tom neříkej učitelům :)
 
 ## Autoři
